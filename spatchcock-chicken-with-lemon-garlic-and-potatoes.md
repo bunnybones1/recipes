@@ -81,7 +81,9 @@ Crack some salt on the garlics and the lemons.
 > [!TIP]
 > If the lemon and garlic are precariously at the edge of the pan, just be sure they are tilted so their juices drip towards the chicken, not towards the edge of the pan.
 
-Put the whole thing in the oven for 40-60 minutes. Watch until the skin is between golden brown and burgundee, depending on taste. Use a meat thermometer to be safe, with the thickest part of the breast reaching 155F.
+Put the whole thing in the oven for 40-60 minutes. Watch until the skin is between golden brown and burgundee, depending on taste. Use a meat thermometer to be safe, with the lower part of the thickest part[^1] of the breast reaching 155F[^2]. 
+[^1]: The chicken will be hotter at the top than near the potatoes.
+[^2]: The temperature will equalize somewhat during the resting period, so the coldest part at 155F will continue to rise after you remove it from the oven. The goal is to reach 165F via this equalization.
 
 Pull the pan out carefully, the potato layer is swimming in fat/butter!
 
