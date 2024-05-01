@@ -3,7 +3,7 @@
 ## You'll need
 
 ### Ingredients
-- 3.25% milk (2L)
+- 2 litres of 3.25% milk
 - 60-120g of previous yogurt
 
 ### Tools
