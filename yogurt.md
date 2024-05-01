@@ -1,5 +1,7 @@
 # Yogurt
 
+The gist: you're pasteurizing milk, careful not to burn it, cooling it down and then introducing a culture to it.
+
 ## You'll need
 
 ### Ingredients
