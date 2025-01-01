@@ -5,6 +5,7 @@
 - cake pan (13" by 9", 2" deep)
 - whisk
 - rolling pin
+- cheese grater
 - stand mixer optional (but dough can be tough by hand)
 
 ## Ingredients
