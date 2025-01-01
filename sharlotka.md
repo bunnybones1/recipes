@@ -26,8 +26,8 @@
 
 ### merange
 - 5 egg whites (from the 5 eggs above)
-- 100g icing sugar
 - pinch of salt
+- 100g icing sugar
 
 ## Instructions
 
