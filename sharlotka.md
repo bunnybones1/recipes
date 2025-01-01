@@ -1,6 +1,8 @@
-# Ingredients
+# Sharlotka with Merange
 
-## Equipment
+## Ingredients
+
+### Equipment
 
 - cake pan (13" by 9", 2" deep)
 - whisk
@@ -28,7 +30,7 @@
 - 100g icing sugar
 - pinch of salt
 
-# Instructions
+## Instructions
 
 ### Prepare the dough
 
@@ -51,7 +53,7 @@
 6. Meanwhile, in a large bowl, combine 2 cans of apple pie filling with 2 tbps of powdered cinnamon. Cut the apples into smaller pieces if desired, with 2 serated knives
 
 ### Apples, top dough, and prepare the merange
-1. spread the apples onto cake evenly
+1. When the previous bake is complete, spread the apples onto cake evenly
 2. grate the frozen dough onto the apples, spreading evenly to cover
 3. bake for another 20 mins until top is golden with hints of brown
 4. meanwhile, combine egg whites and pinch of salt in a large bowl, and whip until it forms a firm foam
