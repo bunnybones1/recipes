@@ -4,9 +4,9 @@
 - 450g butter
 - 5 eggs
 - 1/2 tps vanilla extract
-- ? tbps magic baking powder
+- 1 tbps magic baking powder
 - 3 tbsp sour cream (full fat)
-- 275g sugar
+- 320g sugar
 
 - pan should be 13 inch by 9 inch by 2 inch tall
 
