@@ -1,14 +1,13 @@
 # Sharlotka with Merange
 
-## Ingredients
-
-### Equipment
+## Equipment
 
 - cake pan (13" by 9", 2" deep)
 - whisk
 - stand mixer optional (but dough can be tough by hand)
 - rolling pin
 
+## Ingredients
 
 ### dough
 
