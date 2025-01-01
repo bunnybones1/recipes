@@ -21,7 +21,7 @@
 
 ### apple filling
 
-- 1 can apple pie filling
+- 2 cans apple pie filling
 - 2 tbsp cinnamon
 
 ### merange
