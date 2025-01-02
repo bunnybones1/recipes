@@ -1,4 +1,4 @@
-# Sharlotka with Merange
+# Sharlotka with Meringue
 
 ## Equipment
 
@@ -25,7 +25,7 @@
 - 2 cans apple pie filling
 - 2 tbsp cinnamon
 
-### merange
+### meringue
 - 5 egg whites (from the 5 eggs above)
 - pinch of salt
 - 100g icing sugar
@@ -52,16 +52,16 @@
 5. bake at 375f for 15 mins, until golden brown on top
 6. meanwhile, in a large bowl, combine 2 cans of apple pie filling with 2 tbps of powdered cinnamon. Cut the apples into smaller pieces if desired, with 2 serated knives
 
-### Apples, top dough, and prepare the merange
+### Apples, top dough, and prepare the meringue
 1. when the previous bake is complete, spread the apples onto cake evenly
 2. grate the frozen dough onto the apples, spreading evenly to cover
 3. bake for another 20 mins until top is golden with hints of brown
 4. meanwhile, combine egg whites and pinch of salt in a large bowl, and whip until it forms a firm foam
 5. add icing sugar and beat until evenly incorporated
 
-### Merange and cooling
+### Meringue and cooling
 
-1. when previous bake is complete, spread merange on cake and
+1. when previous bake is complete, spread meringue on cake and
 bake at 325f for 10-15 minutes until foam is golden color
 2. turn oven off, and leave cake in oven for 30 minutes with door slightly open
 3. pull cake out of oven to cool completely. It can be kept out of the fridge for up to two days, and 7 days in the fridge
